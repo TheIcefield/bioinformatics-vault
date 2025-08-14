@@ -1,0 +1,1 @@
+The organelle of [eukaryotic](Eukaryotes) [[cell]], which contains [[DNA]].
